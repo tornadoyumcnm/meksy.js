@@ -1,1 +1,1 @@
-# Bot İşlerini Bıraktığım İçin Meksy.js Botunu Sizlere Salıyorum.
+# Botun Yeni Halini Yazıcam O Yüzden Bu Sizde Dursun ;)
